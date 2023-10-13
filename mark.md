@@ -1,1 +1,0 @@
-tang ina mo mark
